@@ -1,0 +1,1 @@
+https://jananiportfolio.netlify.app/
